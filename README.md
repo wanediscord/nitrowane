@@ -1,1 +1,4 @@
 # nitrowane
+
+
+ÇALMAYIN DIMDIZLAK SIKERIM BAK ^^WANE
